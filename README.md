@@ -1,2 +1,2 @@
 # Desings
-Desings
+Photoshop
